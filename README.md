@@ -1,2 +1,2 @@
 # londonGrp4
-This song contains versus:
+This song contains verses:
